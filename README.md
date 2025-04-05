@@ -1,4 +1,3 @@
-```markdown
 # El Kobold Tuerto
 
 **https://koboldweb.pages.dev/**
