@@ -28,7 +28,7 @@ Allá por 2001 o 2002, alguien registró el dominio `kobold.com.ar`. Lo único q
 
 Y una imagen que hoy está perdida en el tiempo: el logo del Kobold Tuerto — un kobold al estilo Dungeons & Dragons, con un báculo o lanza, y un parche en el ojo. Probablemente dibujado a mano, escaneado, con contrastes a tope. Nunca sabremos si fue digital o analógico.
 
-Tal vez era un sitio de una crew de jugadores de Magic. Tal vez un dominio reservado para litigar después. Tal vez nada. Lo único cierto es que el sitio estuvo **en construcción durante años**, hasta que el dominio expiró o fue comprado por una empresa alrededor de 2007. Y así desapareció el Kobold Tuerto.
+Tal vez era un sitio de una crew de jugadores de Magic. Tal vez un dominio reservado para litigar después. Tal vez nada. Lo único cierto es que el sitio estuvo **en construcción durante años**, hasta que el dominio expiró o fue comprado por una empresa alrededor de 2014. Y así desapareció el Kobold Tuerto.
 
 ## 🔁 ¿Por qué revivirlo?
 
